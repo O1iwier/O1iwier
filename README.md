@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @O1iwier
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning pyhon
+- 📫 How to reach me oliwierwawrzyniak@hotmail.com
+- ⚡ Fun fact: Sky isn't blue
